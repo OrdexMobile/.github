@@ -73,4 +73,4 @@ By removing barriers to entry for small businesses and creating sustainable oppo
 
 **Let's make online ordering accessible to everyone.** 🚀
 
-**Ordex Mobile** | Delivering Opportunities
+**Ordex Mobile** | Don't Wait The Heat, Grab and Eat !
